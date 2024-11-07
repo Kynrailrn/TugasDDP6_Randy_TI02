@@ -1,0 +1,2 @@
+# TugasDDP6_Randy_TI02
+0110224215
